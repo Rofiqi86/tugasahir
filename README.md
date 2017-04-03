@@ -1,2 +1,0 @@
-# tugasahir
-tugassss
